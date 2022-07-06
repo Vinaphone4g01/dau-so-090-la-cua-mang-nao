@@ -1,2 +1,4 @@
 # dau-so-090-la-cua-mang-nao
 Các đầu số 090 là mạng gì? Ý nghĩa đầu số 090
+<p style="text-align: justify;">Chắc hẳn không ít khách hàng thắc đầu số<a href="https://3gmobifones.com/dau-so-090-cua-mang-nao"><strong> 090 là của nhà mạng nào?</strong></a> Đối với những khách hàng mới chuyển sang sử dụng các sim số 090 thì liên tục muốn có câu giải đáp chính xác. Thông thường các đầu số 090 sẽ kết hợp những con số nào? Ý nghĩa ra sao? Nếu bạn cũng đang chung câu hỏi thì cùng <a href="http://3gmobifones.com" target="_blank" rel="noopener">3gmobifones.com</a> tìm hiểu thông tin chi tiết sau.</p>
+<p style="text-align: justify;">Sở hữu cho mình đầu số đẹp cũng là cách để tăng tài vận, thay đổi phong thủy giúp cá nhân phát triển. Còn chần chờ gì nữa mà không cùng nhau khám phá bí mật ngay trong bài viết dưới đây.</p>
